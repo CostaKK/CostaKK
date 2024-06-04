@@ -8,7 +8,7 @@ meu nome é Lucas Costa
 
 ### Você entrar em contato comigo 📫
 
-luquinhas.btr@gamil.com
+luquinhas.btr@gmail.com
 
 @LucasCosta
 
